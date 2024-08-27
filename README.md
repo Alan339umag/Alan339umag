@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Alan339umag
+- 👀 I’m interested in Programing and everything about computers
+- 🌱 I’m currently learning Computer Science at UMAG (Ingeniería Civil en Computación e Informática)
+- 📫 How to reach me: alan.almonacid.933@gmail.com
+- ⚡ Fun fact: I'm Argentinian in Chile learning French
